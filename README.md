@@ -1,0 +1,1 @@
+# --moz-document-url-prefix-https-discordapp.com-channels-Make-The-Image-Darker-.layer
